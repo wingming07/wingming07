@@ -7,7 +7,7 @@
 
 💞️ I’m looking to collaborate on exciting web development projects and tech innovations.
 
-📫 How to reach me: your-email@example.com
+📫 How to reach me: dineshdinesh12zxas@gmail.com or d860848@gmail.com
 
 😄 Pronouns: They/Them
 
